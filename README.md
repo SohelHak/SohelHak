@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SohelHak
 - 👀 I’m interested in : **Hacking**
-- 🌱 I’m currently learning : **ADVANCE Hacking**
+- 🌱 I’m currently learning : **Advance Hacking**
 - 📫 How to reach me:
 
 **YouTube Accounts:**
