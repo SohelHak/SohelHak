@@ -3,13 +3,14 @@
 - 🌱 I’m currently learning : **Advance Hacking**
 - 📫 How to reach me:
 
-**YouTube Accounts:**
+**YouTube Account:**
 
 YouTube : https://youtube.com/@codewithsohel
+
+**Instagram accounts:**
 Instagram : https://www.instagram.com/code_with_sohel
 
-**Original Accounts:**
-
+*Original Account*
 Instagram : https://www.instagram.com/sohel_hak
 
 
